@@ -19,3 +19,6 @@ This repository outlines my completed professional certifications relevant to da
 ---
 
 > 🎯 Each certification contributes to my goal of becoming a well-rounded data analyst and public servant focused on strategic insights and impact.
+> Scanned certificates available upon request for verification.
+
+
